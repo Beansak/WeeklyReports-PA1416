@@ -1,4 +1,4 @@
-What I did in week 5, handed in at the end of week 5.
+What I (Isak Klaesson) did in week 5, handed in at the end of week 5.
 Monday - Friday 27th Jan to 31st Jan
 
 **Individual Weekly Report Template**
